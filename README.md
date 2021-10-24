@@ -1,1 +1,1 @@
-# suyog-info-np
+# https://suyog-info-np.github.io/
